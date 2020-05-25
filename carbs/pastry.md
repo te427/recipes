@@ -18,9 +18,11 @@ In a bowl or stand mixer, mix flour and salt.
 
 Cut fat into 1 inch inch cubes and mix until lumps of fat are pea sized.
 
-Mix egg and vinegar, then combine with cold water. Pour into mix while blending, until the dough sticks together.
+Beat an egg, and divide it in half. Mix one half of egg and vinegar, then combine with cold water. Pour into mix while blending, until the dough sticks together. Save the other half.
 
 Cut dough in two, form into balls and cover in plastic wrap. Place in fridge for 2 hours, or in freezer for 30 minutes.
+
+When baking pastry, soak part of a paper towel in the other half of the egg and dab the top of the pastry with it until it glistens. This will turn the pastry golden as it bakes.
 
 ## Tips
 
